@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://freezertds.straw.page/">strawpage</a> ₊˚｡⋆❆⋆｡˚₊ <a href="https://freezer.atabook.org/">atabook</a> ₊˚｡⋆❆⋆｡˚₊ <a href="https://pronouns.page/@freezertds" style="color: ##5bb3e8;">pronouns.page</a>
+<a href="https://freezertds.straw.page/">strawpage</a> ₊˚｡⋆❆⋆｡˚₊ <a href="https://freezer.atabook.org/">atabook</a> ₊˚｡⋆❆⋆｡˚₊ <a href="https://pronouns.page/@freezertds">pronouns.page</a>
 </p>
 
 <p align="center">
