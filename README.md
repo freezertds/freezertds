@@ -1,4 +1,6 @@
 <p align="center">
+please w2i! i don't check chat often unless i'm with a friend </p>
+<p align="center">
 <a href="https://freezertds.straw.page/">strawpage</a> ₊˚｡⋆❆⋆｡˚₊ <a href="https://freezer.atabook.org/">atabook</a> ₊˚｡⋆❆⋆｡˚₊ <a href="https://walloftext.co/freezertds">walloftext</a> ₊˚｡⋆❆⋆｡˚₊  <a href="https://pronouns.page/@freezertds">pronouns.page</a>
 </p>
 
